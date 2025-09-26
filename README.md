@@ -38,3 +38,7 @@ This one-year Bible reading guide is designed to help you read through the entir
 **This journey isn’t about rushing—it’s about growing closer to God through His Word. Stay faithful each day, and you’ll finish this year with a deeper understanding of the Bible and a stronger relationship with Him.**
 
 ---
+
+### Thank You
+
+A special thank you to Brent for putting all this together and making this valuable guide possible.
