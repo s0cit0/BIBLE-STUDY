@@ -1,6 +1,7 @@
 # One-Year Bible Reading Plan (OT First, then NT)
 
-This plan takes you through the entire Bible in one year, beginning with the Old Testament (Genesis → Malachi), then the New Testament (Matthew → Revelation). Each day lists the exact chapters to read in order, without jumping between sections.
+This plan takes you through the entire Bible in one year, beginning with the Old Testament (Genesis → Malachi), then the New Testament (Matthew → Revelation). 
+Each day lists the exact chapters to read in order, without jumping between sections.
 
 ---
 

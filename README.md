@@ -12,3 +12,28 @@ This one-year Bible reading guide is designed to help you read through the entir
 ---
 
 **This journey isn’t about rushing—it’s about growing closer to God through His Word. Stay faithful each day, and you’ll finish this year with a deeper understanding of the Bible and a stronger relationship with Him.**
+
+---
+
+# Reading Order & Explanations
+
+## Foundations
+- Genesis through Deuteronomy: Creation, covenant, exodus, the law, and Israel’s formation.
+
+## History of Israel
+- Joshua through Esther: Israel’s conquest, kingdom, exile, and return.
+
+## Wisdom & Worship
+- Job, Psalms, Proverbs, Ecclesiastes, Song of Solomon: Wisdom, prayer, and devotion.
+
+## Prophets
+- Isaiah through Malachi: God’s warnings, promises, and prophecy of the Messiah.
+
+## New Testament: Jesus & the Church
+- Matthew through Acts: The life of Jesus and the early church.
+
+## Letters of the Apostles
+- Romans through Jude: Teachings on faith, grace, and Christian living.
+
+## Final Book
+- Revelation: Christ’s victory and the hope of a new heaven and earth.
