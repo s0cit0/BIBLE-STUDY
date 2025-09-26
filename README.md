@@ -9,11 +9,6 @@ This one-year Bible reading guide is designed to help you read through the entir
 3. As you read, if questions come up, take time to research. Use a study Bible, online tools, or ask for guidance.
 4. Once you’ve finished the book, watch the Spoken Word Gospel video summary for that book to reinforce what you learned.
 
----
-
-**This journey isn’t about rushing—it’s about growing closer to God through His Word. Stay faithful each day, and you’ll finish this year with a deeper understanding of the Bible and a stronger relationship with Him.**
-
----
 
 # Reading Order & Explanations
 
@@ -37,3 +32,9 @@ This one-year Bible reading guide is designed to help you read through the entir
 
 ## Final Book
 - Revelation: Christ’s victory and the hope of a new heaven and earth.
+
+---
+
+**This journey isn’t about rushing—it’s about growing closer to God through His Word. Stay faithful each day, and you’ll finish this year with a deeper understanding of the Bible and a stronger relationship with Him.**
+
+---
